@@ -4,4 +4,4 @@ Revero aims to work in consulting for standardization and improvement of industr
 
 Site will be available soon ;)
 
-Contact us by email: juliacremus@gmail.com
+Contact us by email: revero@revero-eng.com.br
